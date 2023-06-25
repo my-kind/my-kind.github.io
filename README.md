@@ -1,1 +1,0 @@
-# my-kind.github.io
